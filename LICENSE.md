@@ -1,4 +1,4 @@
-#  
+#  rare shrink for brainrots Scripts offers the most advanced shrink for brainrots Script, with fly and invisibility. Perfect for dominating any match.
 
 
 
